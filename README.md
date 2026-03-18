@@ -1,0 +1,42 @@
+# Martin Garrix – Catharina
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:07.62] Ooh, Catharina
+[00:15.38] I don't even know you, but I feel like I might owe you my life
+[00:46.38] 
+[00:23.14] It's 12:04, and it's our first morning
+[00:30.55] I see your face and I start to believe
+[00:38.14] Here in the dawn before my heart can be broken
+[00:45.23] I'm free of the world and all of its greed
+[01:06.23] 
+[00:51.75] Ooh, Catharina
+[00:59.23] I don't even know you, but I feel like I might owe you my life
+[01:06.70] Ooh, Catharina
+[01:14.03] We can be one or be each other 'cause we share the same eyes
+[01:44.03] 
+[01:21.66] Ooh-ooh
+[01:25.66] Ooh-ooh
+[01:29.30] Ooh-ooh
+[01:33.06] Ooh-ooh
+[01:37.75] The sun comes up, and it feels like we're dreaming
+[01:44.10] I tell you things I've never told myself
+[01:51.86] You and I listen, we can speak without talking
+[01:59.11] You're here before I know I need your help
+[02:06.51] And then there was no one else
+[02:21.51] 
+[02:14.19] Ooh, Catharina
+[02:20.42] I don't even know you, but I feel like I might owe you my life
+[02:28.11] Ooh, Catharina
+[02:35.42] We can be one or be each other 'cause we share the same eyes
+[03:05.42] 
+[02:42.78] Ooh-ooh
+[02:46.90] Ooh-ooh
+[02:50.59] Ooh-ooh
+[02:54.34] Ooh-ooh
+[02:58.03] Ooh-ooh
+[03:01.71] Ooh-ooh
+[03:05.42] Ooh-ooh
+[03:09.06] Ooh-ooh
+```
